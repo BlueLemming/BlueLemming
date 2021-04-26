@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BlueLemming
-- 👀 I’m interested in streching 
-- 🌱 I’m currently learning how to write better
+- 👀 I’m interested in too many things to coherently list here. 
+- 🌱 I’m currently learning how to write better.
 - 💞️ I’m looking to collaborate on anywhere i can be useful
 - 📫 How to reach me - you could message me ;) 
 
